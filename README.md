@@ -1,3 +1,3 @@
-# boiwantlearncode.github.io
+# Typetop Support URL
 
 ## Contact me at ibetank@gmail.com
